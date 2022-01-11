@@ -32,7 +32,7 @@ Extensiones de pestañas:
 
 Redes sociales:
 
-instagram: nailah_beaute_
+Instagram: nailah_beaute_
 
 Facebook: Nailah & Beaute
 
