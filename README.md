@@ -30,7 +30,7 @@ Extensiones de pestañas:
 -Volumen 
 
 
-Redes socuales:
+Redes sociales:
 
 instagram: nailah_beaute_
 
