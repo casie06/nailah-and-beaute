@@ -24,3 +24,6 @@ Extensiones de pestañas:
 -Clasicas
 -Hibridas
 -Volumen 
+
+
+	/assets/images/electrocat.png
