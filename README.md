@@ -26,4 +26,8 @@ Extensiones de pestañas:
 -Volumen 
 
 
-	/assets/images/electrocat.png
+Redes sociales
+
+instagram: nailah_beaute_
+facebook: Nailah & Beaute
+WhatsApp: 6141653024
