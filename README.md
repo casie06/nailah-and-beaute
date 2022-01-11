@@ -34,6 +34,6 @@ Redes sociales:
 
 instagram: nailah_beaute_
 
-acebook: Nailah & Beaute
+Facebook: Nailah & Beaute
 
 WhatsApp: 6141653024
