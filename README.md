@@ -1,4 +1,4 @@
-# NailahAndBeaute
+# Nailah & Beaute
 
 Hola! mi nombre es Casandra, soy manicurista y lashista , creadora de Nailah & Beaute
   
