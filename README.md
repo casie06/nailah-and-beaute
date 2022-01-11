@@ -26,8 +26,7 @@ Extensiones de pestañas:
 -Volumen 
 
 
-Redes sociales
-
+Redes socuales:
 instagram: nailah_beaute_
 facebook: Nailah & Beaute
 WhatsApp: 6141653024
