@@ -1,7 +1,7 @@
 # Nailah & Beaute
 
-Hola! mi nombre es Casandra, soy manicurista y lashista , ademas creadora de Nailah & Beaute estudio privado.
-  
+! [] (https://github.com/casie06/nailah-and-beaute.wiki.git)
+
 
 
 Los servivicios a ofrecer son: 
