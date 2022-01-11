@@ -1,8 +1,7 @@
 # Nailah & Beaute
 
-Hola! mi nombre es Casandra, soy manicurista y lashista , creadora de Nailah & Beaute
+Hola! mi nombre es Casandra, soy manicurista y lashista , ademas creadora de Nailah & Beaute estudio privado.
   
-Es un proyecto emprendedor que inicio el 10 de mayo del 2020, el cual fue creciendo poco a poco hasta llegar a lo que es hoy un estudio privado.
 
 
 Los servivicios a ofrecer son: 
